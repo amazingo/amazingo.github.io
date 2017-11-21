@@ -1,0 +1,1 @@
+# amazingo.github.io
